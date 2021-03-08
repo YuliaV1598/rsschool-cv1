@@ -30,3 +30,5 @@ Since November 2020 I have been studying by distance learning.
 
 No work experience.
 * * *
+***Languages:***
+English level A2
